@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning languages, soft skills, and many more.
 - 💞️ I’m looking to collaborate on development on realtime projects.
 - 📫 How to reach me on instagram shaikazharsohail.
-- ⚡ Fun fact: 1% progress is better than anything.
+- ⚡ Truth: 1% progress is better than nothing.
